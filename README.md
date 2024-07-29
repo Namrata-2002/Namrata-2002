@@ -4,7 +4,7 @@
 - 💞️ Open to collaborating on groundbreaking tech innovations
 - 📫 Reach out to me at: namratapal2002@gmail.com
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I love exploring new tech gadgets and tools
+- ⚡ Fun fact: I thrive on exploring new tech frontiers and gadgets
 
 <!---
 Namrata-2002/Namrata-2002 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
